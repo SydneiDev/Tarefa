@@ -1,0 +1,1 @@
+O curso esta sendo super proveitoso, estou aprendendo bastante, e tambem colocando em pratica o que estou aprendendo.
